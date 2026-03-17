@@ -1,4 +1,4 @@
-# Hi I'm Rena. <br> I've been studing Electronic Engineering.
+# Hi I'm Rena. <br> I've been studying Electronic Engineering.
 
 ## 🔭About me
 
